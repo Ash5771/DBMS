@@ -12,7 +12,7 @@
 
 📌 **Week-6:** [Watch here](https://youtu.be/AG8w_J9vaTQ?si=AJ9OBYgwWJ0YByl3)  
 
-📌 **Week-7:** [Watch here](yt link)  
+📌 **Week-7:** [Watch here](https://www.youtube.com/live/MlUGdjzxCNs)  
 
 📌 **Week-8 (Part-1):** [Watch here](https://youtu.be/XEH0yX-iH3U?si=4OLro6K3rKPL0HZ6)  
 📌 **Week-8 (Part-2):** [Watch here](https://youtu.be/-MiPacTEjTE?si=QYr0wHaTgA8M6qyX)  
